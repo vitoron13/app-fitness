@@ -1,1 +1,1 @@
-João perdeu tudo no jogo do bicho
+João pediu dinheiro pro agiota
