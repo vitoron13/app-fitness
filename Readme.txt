@@ -1,1 +1,1 @@
-joão morreu
+João reviveu
