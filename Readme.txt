@@ -1,1 +1,1 @@
-João reviveu
+João ganhou 3 mil reais
