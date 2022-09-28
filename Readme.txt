@@ -1,1 +1,1 @@
-João ganhou 3 mil reais
+João apostou no jogo do bicho
