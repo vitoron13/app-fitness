@@ -1,1 +1,1 @@
-João ganhou a aposta com o dinheiro do agiota
+O agiota pediu o dinheiro de volta
