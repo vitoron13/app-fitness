@@ -1,1 +1,1 @@
-qualquer coisa
+joão perdeu a esposa
