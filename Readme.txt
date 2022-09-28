@@ -1,1 +1,1 @@
-joão perdeu a esposa
+joão morreu
