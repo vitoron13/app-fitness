@@ -1,1 +1,1 @@
-João apostou no jogo do bicho
+João perdeu tudo no jogo do bicho
