@@ -1,1 +1,1 @@
-O agiota pediu o dinheiro de volta
+João decidiu fugir com o dinheiro
